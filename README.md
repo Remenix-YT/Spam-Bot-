@@ -22,3 +22,12 @@ To Use this Spam bot Follow these simple steps
 10. than press F2 in the window or on your keyboard to start it and press F4 in the window or on keyboard to stop the bot 
 
 Those are the 10 easy simple ways to use this bot 
+
+
+# Credits 
+
+Join the discord server - https://discord.gg/wrFzprkmaS 
+
+Youtube - Remenix-YT 
+
+Bot is not made by me btw 
