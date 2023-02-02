@@ -28,6 +28,8 @@ Those are the 10 easy simple ways to use this bot
 
 Join the discord server - https://discord.gg/wrFzprkmaS 
 
+Discord KlausJäger#6779
+
 Youtube - Remenix-YT 
 
 Bot is not made by me btw 
