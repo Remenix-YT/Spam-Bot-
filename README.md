@@ -5,7 +5,7 @@ To Use this Spam bot Follow these simple steps
 
 2. After Downloading it Open the file/run the file 
 
-3. AFter Opening the file your gonna have the SpamBot Window will open 
+3. After Opening the file your gonna have the SpamBot Window will open 
 
 4. Once window is open go to tab located on the far right side that says instrucions there will be instructions there 
 
