@@ -28,7 +28,7 @@ Those are the 10 easy simple ways to use this bot
 
 Join the discord server - https://discord.gg/wrFzprkmaS 
 
-Discord KlausJäger#6779
+Discord KlausJäger#1743
 
 Youtube - Remenix-YT 
 
